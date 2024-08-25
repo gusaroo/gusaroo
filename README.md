@@ -1,3 +1,3 @@
-## Welcome to our page
+## Welcome to the Gusaroo Account!
 
-Find what you want
+Find whatever you want
